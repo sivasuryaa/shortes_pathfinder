@@ -1,1 +1,6 @@
-# shortes_pathfinder
+- 👋 Hi, I’m @surya
+- 👀 I’m interested in Programing and space technologys
+- 🌱 I’m currently learning New trends in programing
+- 💞️ I’m looking to collaborate on develop my career
+- 📫 How to reach me sivasuryaa2001@gmail.com
+- 🏛️ JJ college of engineering and technology. Final year 2022 passed out
